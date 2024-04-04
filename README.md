@@ -1,1 +1,1 @@
-hkokoJ
+hkok
